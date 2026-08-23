@@ -1,10 +1,9 @@
-# iitsjae
-hello! i am jae, but you can also call me rowan if you want! feel free to follow, ill try to be on here more. 
-im mostly active on pony.town, roblox, and friendproject. 
-                        this is about me!
-     i am a minor so dont be weird..    i am a female at birth but you can call me by any pronouns, i dont mind. 
-     i love music, i mostly listen to twenty one pilots, five finger death punch, three days grace, bad bunny, the weeknd, and other artsits, 
-     i have a diverse music taste.
-     i play the electric guitar, ukulele, and the viola. 
-     i make kandi, draw, paint, a lot of art related things.
-     and if anyone could, i need help with the layouts in here, i only know how to put layouts in friendprojects:/
+# iitsveil-about me 
+ello im veil, but I also go by jae. im kinda new on this and don't know how everything works on GitHub 
+im mostly active on pony.town, roblox, pinterest, and friendproject. 
+                        so this is about me 
+     I like art, and music!  I like to read, mostly wings of fire
+    I listen to like any type of music except country
+     I am learning how to skateboard
+     I like pjsk, miku, my little pony, bfdi, and twenty one pilots
+     >_<
